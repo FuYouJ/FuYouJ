@@ -1,5 +1,5 @@
 - 👋 Hi, I’m 付有杰
-- 👀 I’m interested in everything...
+- 👀 对写代码很感兴趣，想法很多，喜欢交朋友(仅限于网络)
 - 🌱 
 - 💞️ 
 - 📫 
