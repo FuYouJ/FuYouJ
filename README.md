@@ -1,8 +1,8 @@
 - 👋 Hi, I’m 付有杰
 - 👀 对写代码很感兴趣，想法很多，喜欢交朋友(仅限于网络)
-- 🌱 
-- 💞️ 
-- 📫 
+- 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 
+- 💞️ 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 
+- 📫 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 🌱 
 
 <!---
 FuYouJ/FuYouJ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
